@@ -59,6 +59,6 @@ Valoraremos positivamente:
 
 ## Vale, me interesa, ¿y ahora?
 
-Si estás interesado, envía un email a \*\*\*\*\*\* contándonos sobre ti y adjuntando tu CV. ¡Estamos deseando conocerte!
+Si estás interesado, envía un email a **[email protected]** contándonos sobre ti y adjuntando tu CV. ¡Estamos deseando conocerte!
 
 ¡Un saludo y gracias!
